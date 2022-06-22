@@ -1,1 +1,1 @@
-você é mais fraco doque pensa. #depressão
+<i>você é mais fraco do que pensa. #depressão</i>  
